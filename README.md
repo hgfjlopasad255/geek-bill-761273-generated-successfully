@@ -1,3 +1,3 @@
 25-Sep-2026
 
-<!-- Round 1 · 2026-09-25 14:20:07 · D6Dzm2d8 · godale.3@att.net, jem7040@yahoo.com -->
+<!-- Round 2 · 2026-09-25 14:20:12 · QVdpeq9h · skalkofen@comcast.net, dr_fields@sbcglobal.net -->
